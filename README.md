@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://EugBulava.github.io/rsschool-cv/cv
