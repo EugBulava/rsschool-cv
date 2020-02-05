@@ -1,1 +1,0 @@
-# https://EugBulava.github.io/rsschool-cv/cv
